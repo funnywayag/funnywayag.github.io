@@ -1,0 +1,1 @@
+# funnywayag.github.io
